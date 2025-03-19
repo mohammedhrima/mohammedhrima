@@ -1,4 +1,4 @@
 - 📫 How to reach me : mohammed.hrima1998@gmail.com <br /> <br />
 - :red_circle: https://www.youtube.com/@mohammedhrima7976 <br /> <br />
 - :briefcase: www.linkedin.com/in/mohammedhrima <br /> <br />
-- :link: https://mohammedhrima.github.io/mhrima/ <br /> <br />
+- :link: https://mohammedhrima.github.io/ <br /> <br />
